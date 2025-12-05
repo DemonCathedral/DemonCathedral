@@ -10,8 +10,9 @@
   <br>
    　 　    　 ...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ
   　 <br>　  dni illegal proshit/darkshit + romantisizers
-    <br/> 　　　 no rp ⅋⅋ under16. dont force ships ty　
-     <br> 　　　　 dont flirt w me & 𝘯𝘰 nsfw w me.
+    <br/>　  　fiction effects/reflects reality btww
+    <br> 　　　 no rp ⅋⅋ under16. dont force ships ty　
+     <br/> 　　　　 dont flirt w me & 𝘯𝘰 nsfw w me.
   
    <br/>　 ⸺  im bad at talking, please forgive me!
    <br>overall idgaf (ᴀɴᴅ ᴅᴏᴇꜱɴᴛ ʜᴜʀᴛ ᴀɴʏᴏɴᴇ), you do you. <br/>

@@ -10,14 +10,14 @@
   <br>
    　 　    　 ...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ
   　 <br>　  dni illegal proshit/darkshit + romantisizers
-    <br/>　  　fiction effects/reflects reality btww
+    <br/>　　ɴᴏ ("ʜᴀᴘᴘʏ") ɪᴠᴀɴᴅʀᴇᴡ. ɪ'ᴍᴀ ᴀɴɢꜱᴛ ꜱʟᴏᴘ ʟᴜᴠᴇʀ
     <br> 　　　 no rp ⅋⅋ under16. dont force ships ty　
+    <br/>  　　　ꜰɪᴄᴛɪᴏɴ ᴇꜰꜰᴇᴄᴛꜱ/ʀᴇꜰʟᴇᴄᴛꜱ ʀᴇᴀʟɪᴛʏ ʙᴛᴡᴡ
      <br/> 　　　　 dont flirt w me & 𝘯𝘰 nsfw w me.
   
    <br/>　 ⸺  im bad at talking, please forgive me!
    <br>overall idgaf (ᴀɴᴅ ᴅᴏᴇꜱɴᴛ ʜᴜʀᴛ ᴀɴʏᴏɴᴇ), you do you. <br/>
-     
-  <br> 　　　[s](https://ivan-bad-things.straw.page)trawpage...　[a](https://hellspawn.atabook.org)tabook... 　[r](https://rentry.co/imadeyousomething)entry... 
+   　　　[s](https://ivan-bad-things.straw.page)trawpage...　[a](https://hellspawn.atabook.org)tabook... 　[r](https://rentry.co/imadeyousomething)entry... 
   <br/>
 <br> 　　　　　　　  <img height="20" src="https://files.catbox.moe/z6um6x.gif"/>
 </div> 

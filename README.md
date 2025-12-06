@@ -10,9 +10,9 @@
   <br>
    　 　    　 ...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ
   　 <br>　  dni illegal proshit/darkshit + romantisizers
-    <br/>　　ɴᴏ ("ʜᴀᴘᴘʏ") ɪᴠᴀɴᴅʀᴇᴡ. ɪ'ᴍᴀ ᴀɴɢꜱᴛ ꜱʟᴏᴘ ʟᴜᴠᴇʀ
     <br> 　　　 no rp ⅋⅋ under16. dont force ships ty　
     <br/>  　　　ꜰɪᴄᴛɪᴏɴ ᴇꜰꜰᴇᴄᴛꜱ/ʀᴇꜰʟᴇᴄᴛꜱ ʀᴇᴀʟɪᴛʏ ʙᴛᴡᴡ
+    <br>  　　　 ɴᴏ ɪᴠᴀɴᴅʀᴇᴡ. ɪ'ᴍ ᴀ ᴀɴɢꜱᴛ ꜱʟᴏᴘ ʟᴜᴠᴇʀ
      <br/> 　　　　 dont flirt w me & 𝘯𝘰 nsfw w me.
   
    <br/>　 ⸺  im bad at talking, please forgive me!

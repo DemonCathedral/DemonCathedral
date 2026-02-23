@@ -2,7 +2,7 @@
 <div align="left">
 
 <img width="750" src="https://files.catbox.moe/h2uehv.png"/>
-   <img align="left" width="350" align="center" src="https://files.catbox.moe/nkl3ii.png" alt="cred: quiet24689" /> 
+   <img align="left" width="350" align="center" src="https://files.catbox.moe/x43lbk.webp" alt="cred: quiet24689" /> 
   <br>　
   <br/>
   

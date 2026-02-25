@@ -2,7 +2,7 @@
 <div align="left">
 
 <img width="750" src="https://cdn.discordapp.com/attachments/893407176524197898/1475574413033210158/Untitled12_20260224061726.png?ex=699dfb42&is=699ca9c2&hm=f9108ed2a951badf685c84bdcc329769d30c245e1563caa08662e7e40f3e2486&"/>
-   <img align="left" width="350" align="center" src="https://cdn.discordapp.com/attachments/893407176524197898/1475574412605653163/Untitled11_20260224060947.png?ex=699dfb42&is=699ca9c2&hm=eab73bf2cb5bc398caead3e20f05f4109a737f0f747998ee37d54efdd4621d9b&" alt="cred: quiet24689" /> 
+   <img align="left" width="350" align="center" src="https://files.catbox.moe/9q9191.png" /> 
   <br>　
   <br/>
   

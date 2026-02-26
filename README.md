@@ -7,7 +7,7 @@
    <img width="350" height="75" align="left" src="https://i.ibb.co/CKzXXf5k/Untitled13-20260226125747.png"  /> <br/>
 
    
-  　 <br>...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ 　  
+  　 <br> ...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ 　  
     <br> dni illegal proshit/darkshit + romantisizers
     <br> 　　　 no rp ⅋⅋ under16. & 𝘯𝘰 nsfw w me. <br/>
   <br> overall idgaf (ᴀɴᴅ ᴅᴏᴇꜱɴᴛ ʜᴜʀᴛ ᴀɴʏᴏɴᴇ), you do you. <br/>

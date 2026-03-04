@@ -9,7 +9,7 @@
  <br> ...　 boundaries 　 ʙʟᴀʜ ʙʟᴀʜ ʙʟᴀʜ 　  
    <br> dni illegal darkshit/proshit . under 16 . no nsfw
   <br> overall idgaf (ᴀɴᴅ ᴅᴏᴇꜱɴᴛ ʜᴜʀᴛ ᴀɴʏᴏɴᴇ), you do you. <br/>
-   　　　[s](https://ivan-bad-things.straw.page)trawpage...　[a](https://hellspawn.atabook.org)tabook... 　[r](https://rentry.co/imadeyousomething)entry... 
+   　　　[s](https://cathedralfreak.straw.page)trawpage...　[a](https://hellspawn.atabook.org)tabook... 　[r](https://rentry.co/imadeyousomething)entry... 
   <br/>
 <br> 　　　　　　　  <img height="20" src="https://files.catbox.moe/z6um6x.gif"/>
 </div> 

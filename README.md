@@ -1,5 +1,4 @@
   <div align="center">
-    
     ${\color{#A8A8A8}\text{ɢᴏᴅ ᴍᴏɴᴇʏ, ɪ'ʟʟ ᴅᴏ ᴀɴʏᴛʜɪɴɢ ꜰᴏʀ ʏᴏᴜ.}}$
     
    <img width="750" src="https://i.ibb.co/cXFqXMvZ/Untitled499-20261123224345.png"/>
